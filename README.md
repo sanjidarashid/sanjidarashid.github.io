@@ -1,4 +1,4 @@
-# sanjidarashid.github.io
+# Sanjida Rashid
 
 Social Media 
 
